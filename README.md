@@ -1,0 +1,1 @@
+Immagini per Bot
